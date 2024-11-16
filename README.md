@@ -8,7 +8,7 @@ I enjoy tinkering with tech, building cool projects, and exploring creative ende
 
 🎮 Gaming: Minecraft, Fortnite, Civilization, Magic The Gathering and more!
 
-🎶 Music: Electronic, game soundtracks, and music production. I offer **free streaming** and **purchases** of my albums on [Bandcamp](https://croat.bandcamp.com). I've self-published **8 albums**, with the **8th album** releasing on **January 1st, 2025**. 🎧
+🎶 Music: Electronic game soundtracks and music production. I offer **free streaming** and **purchases** of my albums on [Bandcamp](https://croat.bandcamp.com). I've self-published **8 albums**, with the **8th album** releasing on **January 1st, 2025**. 🎧
  🎧
  
 🎨 Art: Graphic design, digital art, and creative projects.
