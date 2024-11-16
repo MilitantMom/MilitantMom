@@ -7,8 +7,10 @@ I enjoy tinkering with tech, building cool projects, and exploring creative ende
 ## 🌟 Interests
 
 🎮 Gaming: Minecraft, Fortnite, Civilization, Magic The Gathering and more!
+
 🎶 Music: Electronic, game soundtracks, and music production. I offer **free streaming** and **purchases** of my albums on [Bandcamp](https://croat.bandcamp.com). I've self-published **8 albums**, with the **8th album** releasing on **January 1st, 2025**. 🎧
  🎧
+ 
 🎨 Art: Graphic design, digital art, and creative projects.
 
 ## 💻 Tech Skills
@@ -23,7 +25,7 @@ If you're interested in teaming up, feel free to reach out to me! 🤝
 
 ## 📱 Contact Me
 
-You can reach me on Discord: @MilitantMom
+You can reach me on **Discord**: [@MilitantMom](https://discord.gg/w2vTMUYvaH)
 I'm always happy to chat or discuss new ideas!
 
 Thanks for checking out my GitHub! ✨
